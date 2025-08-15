@@ -93,7 +93,12 @@ The Peak Month: **December ($121,818)** and a steady rise of sales was observed 
 •	Evaluate pricing strategies and discounting practices that may be affecting profitability.
 
 
+## Connect with me on socials:
+[Linkedln](https://www.linkedin.com/in/babatunde-oluwatimilehin/)
 
+[Twitter](https://x.com/theolu_babs)
+
+[Github](https://github.com/theolubabs)
 
 
 
